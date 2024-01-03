@@ -1,0 +1,1 @@
+I want to learn everything about python basic in three days starting today been 3/1/2024
